@@ -1,3 +1,3 @@
-[Imgur](https://imgur.com/5vRyveB)
+![Imgur](https://i.imgur.com/5vRyveB.png)
 
-[Imgur](https://imgur.com/8BixhxA)
+![Imgur](https://i.imgur.com/8BixhxA.png)
